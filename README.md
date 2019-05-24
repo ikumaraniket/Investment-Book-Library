@@ -1,0 +1,2 @@
+# How-To-Learn-Investment-and-Share-Market-Strategies-Book-Library
+It's imperative for young adults and professionals to start investing early. One of the main reasons for doing so is to obtain the power of compound interest. By holding long-term investments, one can allow his or her assets to generate more returns. Investing just a few years earlier could translate into tens of thousands, if not hundreds of thousands of additional funds for your retirement nest egg. But while it is important to invest early, it is also important to invest wisely. 
